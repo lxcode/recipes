@@ -28,7 +28,7 @@ hours. If it's not sweet enough for your tastes, add a bit of orange or pineappl
 juice. Drink carefully. Do not smoke while drinking, and take care when inhaling
 the vapors.
 
-Things to try:
+## Things to try:
 
 Some lemon peel to brighten it a bit.
 Honey as a sweetener. Preferably Icelandic.

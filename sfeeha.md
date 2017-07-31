@@ -40,7 +40,7 @@ into a ball about 1.5 inches in diameter, cover the balls with a towel and let
 them rest for 30 minutes.
 
 
-## FILLING
+## Filling
 
 * 2 cups finely chopped onions
 * 1 tablespoon plus 2 teaspoons salt
