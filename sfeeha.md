@@ -15,7 +15,7 @@ Make the dough in the following fashion: Pour 1/4 cup of the lukewarm water into
 a small, shallow bowl and sprinkle it with the yeast and sugar.  Let the mixture
 rest for 2 or 3 minutes, then stir to dissolve the yeast completely.  Set the
 bowl in a warm, draft-free place (such as a turned-off oven) for about 5 minutes,
-or until the mixture almost doubles in volume.  
+or until the mixture almost doubles in volume.
 
 In a deep mixing bowl, combine the flour and the 2 teaspoons of salt, make a well
 in the center and into it pour the yeast mixture, the 1/4-cup of olive oil, and 2
@@ -24,13 +24,15 @@ together with a large spoon, then slowly incorporate the flour and continue to
 beat until the ingredients are well combined.  Add up to 1/2 cup more lukewarm
 water, beating it in a tablespoon or so at a time, and using as much as necessary
 to form a dough that can be gathered into a compact ball.  If the dough is
-difficult to stir, work in the water with your fingers.  
+difficult to stir, work in the water with your fingers.
+
+(note: I've always had to add more water than that --lx)
 
 Place the dough on a lightly floured surface and knead it by pressing it down,
 pushing it forward several times with the heel of your hand and folding it back
 on itself.  Repeat for about 20 minutes, or until the dough is smooth and
 elastic.  Sprinkle it from time to time with a little flour to prevent it from
-sticking to the board.  
+sticking to the board.
 
 Shape the dough into a ball and place it in a lightly oiled bowl.  Drape loosely
 with a kitchen towel and set aside in the warm, draft-free place for 45 minutes
@@ -47,8 +49,8 @@ them rest for 30 minutes.
 * 4 tablespoons olive oil
 * 1/2-cup pine nuts (pignolia)
 * 2 pounds lean boneless lamb, coarsely ground
-* 2 medium-sized fresh, ripe tomatoes, peeled, seeded and finely chopped
-* 1/2 cup finely chopped green pepper
+* 2 medium-sized fresh, ripe tomatoes, chopped
+* 1/2 cup finely chopped green pepper (optional)
 * 1/2 cup finely chopped parsley, preferably flat-leaf parsley
 * 1/2 cup fresh lemon juice
 * 1/4 cup red wine vinegar
