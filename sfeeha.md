@@ -70,7 +70,7 @@ Add them to the bowl of onions, along with the lamb, tomatoes, green pepper,
 parsley, lemon juice, vinegar, tomato paste, cayenne pepper, allspice, 2
 teaspoons of salt and a liberal grinding of black pepper. Knead the mixture
 vigorously with both hands, then beat with a wooden spoon until the mixture is
-smooth and fluffy. Taste for seasoning.
+smooth and fluffy.
 
 Preheat the oven to 500F. With a pastry brush, coat 3 large baking sheets or
 jellyroll pans with the remaining 3 tablespoons of oil.
