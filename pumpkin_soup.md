@@ -24,3 +24,7 @@ you like stewing. When the stew is about half done, put it in the
 pumpkin. Cover, and bake for 45-60- minutes, or until the pumpkin is
 tender, but not soft. Place on a serving dish. To serve, ladle out the
 soup, scraping out a portion of pumpkin flesh with each serving.
+
+Also worth stealing a few techniques from here to do a slower cook:
+
+https://www.onceuponachef.com/recipes/beef-stew-with-carrots-potatoes.html
