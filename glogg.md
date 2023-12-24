@@ -1,7 +1,6 @@
 # Gløgg
 
-A warm holiday punch from Norway. This is Gløgg, not Glögg. Glögg is for Swedes
-and Finns or some such rabble.
+A warm holiday punch from Norway. 
 
 * 24 cardamom seeds
 * 2 cups blanched almonds
